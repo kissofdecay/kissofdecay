@@ -1,4 +1,4 @@
-## Hi there 👋
+I'm too confused for this it's 1 am
 
 <!--
 **kissofdecay/kissofdecay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
