@@ -1,4 +1,4 @@
-<img width="385" height="20" alt="1000017702" src="https://github.com/user-attachments/assets/5adea91e-dc7b-4df3-b15d-0e4363660880" />
+
 <img width="250" height="23" alt="1000017698" src="https://github.com/user-attachments/assets/ec098a76-ad12-4d0b-8807-6d56f024a8d8" />
 
 
@@ -15,3 +15,5 @@
  [spage](https://kissofdecay.straw.page/)
 
  </dv>
+
+ <img width="385" height="20" alt="1000017702" src="https://github.com/user-attachments/assets/5adea91e-dc7b-4df3-b15d-0e4363660880" />
