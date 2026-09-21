@@ -4,4 +4,4 @@
 <img width="567" height="440" alt="1000017699" src="https://github.com/user-attachments/assets/15b2bc47-b97d-447f-baa5-ae8f986efd09" />
 
 
-  [ATA](https://shuichisaiharaa.atabook.org/)
+  [ata](https://shuichisaiharaa.atabook.org/).  [spage](https://kissofdecay.straw.page/).
