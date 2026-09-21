@@ -1,4 +1,5 @@
-I'm too confused for this it's 1 am
+<img width="250" height="23" alt="1000017698" src="https://github.com/user-attachments/assets/ec098a76-ad12-4d0b-8807-6d56f024a8d8" />
+
 
 <!--
 **kissofdecay/kissofdecay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
