@@ -51,7 +51,13 @@
 
 <div align="center">
 
-**shotout to my friends ^_^**
+**shotout to my friends and pals ^_^**
+
+*yukiyukyuk, Moe, Ren, Ira, Jamie, shio and my siblings too iguess. they my sacrifices*
+
+<div align="center">
+
+how do people even have the whole alphabet in their bio you guys can't know that many people iswear. y'all be lying or putting everyone you've ever talked to inthere. I look so friendless compared to those people so #hmu guys I'm not scary
 
 <div align="center">
 
@@ -59,5 +65,5 @@ maybe one day I'll make this actually look good
 
 <div align="center">
 
-listen to memories of you guys 
+listen to memories of you and write shuake fics guys
 
