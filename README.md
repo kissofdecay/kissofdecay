@@ -53,7 +53,7 @@
 
 **shotout to my friends and pals ^_^**
 
-*yukiyukyuk, Moe, Ren, Ira, Jamie, shio and my siblings too iguess. they my sacrifices*
+*yukiyukyuk, Moe, Ren, Ira, Jamie, may, shio and my siblings too iguess. they my sacrifices*
 
 <div align="center">
 
