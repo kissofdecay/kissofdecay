@@ -67,3 +67,8 @@ maybe one day I'll make this actually look good
 
 listen to memories of you and write shuake fics guys
 
+
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=752d2d&label=cheesecakes)
+
+
+
