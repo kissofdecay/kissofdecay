@@ -1,74 +1,73 @@
+<img width="736" height="391" alt="1000017861" src="https://github.com/user-attachments/assets/5f7b9c1d-7a0d-4c21-8f9f-f554ce3e0a51" />
 
 
-<img width="250" height="23" alt="1000017698" src="https://github.com/user-attachments/assets/ec098a76-ad12-4d0b-8807-6d56f024a8d8" />
+<div align="center">
 
-
-<img width="567" height="440" alt="1000017699" src="https://github.com/user-attachments/assets/15b2bc47-b97d-447f-baa5-ae8f986efd09" />
+***"But..I actually want us to be something more"***
 
 <div align="center">
  
- [ata](https://shuichisaiharaa.atabook.org/) 
- 
+ [ata](https://shuichisaiharaa.atabook.org/) . 
+   [spage](https://kissofdecay.straw.page/)
+
  </dv>
 
- <div align="center">
+ <details>
+  <summary> byi ! </summary>
+
+ *13- dni, 18+ iwc, all usual dni (racist, homophobic, ableist, etc etc), I block freely but I don't block very often, if you manage to piss me off badly I will infact, block you very secretly*
+
+ *please refrain from joking about sensitive topics to me (death but not including kms jokes, any type of disease or my grades brah), I will immediately get myself out of the conversation because I am very easily effected and upset by those topics*
+
+
+ *If I have iwc/iwec in my name or status it means I'm in a bad mood or angry/sad about something, worry not I don't bite but I can come off very dry and distant so beware when interacting during those times. if I have dniuf in my name it's pretty self explanatory*
+
+ 
+ *please keep in mind that I have suspected audhd/ocd, so please be patient with me !! :)*
   
- [spage](https://kissofdecay.straw.page/)
 
- </dv>
-
- <img width="385" height="20" alt="1000017702" src="https://github.com/user-attachments/assets/5adea91e-dc7b-4df3-b15d-0e4363660880" />
+</details>
 
 
+<details>
+  <summary>extra</summary>
 
- 
-<div align="center">
+ *I really like yapping. when I open my mouth boy it'll take a while before it closes 😳😳. I'm not very good at responding ok? so if you rant or vent I probably wouldn't have a good response most times, ok?*
 
-**read byi!!**
+ *I'm also very awkward most of the time and get embarrassed easily, so we might be in silent silence until someone starts a convo.. and I might refrain from saying some things kay*
 
-*dni is obvious (homophobic, racist, ableist and etc), -13 dni and 18+ please iwc, I block freely but I do not block often*
+ **shotout to all my cool friends and oomfs 👀**
 
-*if I have iwc/iwec in my name it means I'm in a bad mood but I'm still available to approach !! I don't bite >< though I may be dry and or not responding much*
+ *< Moe, Yuki, Ren, Ira, May, Shio , Jamie and my two very ANNOYING but lovable siblings 😁😁 3*
 
+</details>
 
-*I'm neither a yume or fictionkin (though it may kinda seem like it at first sight) but I don't mind if you are. also please refrain from joking about sensitive topics (death, any type of disease, jokes about mental disorders and stuff) to me as they affect me a lot!*
-
-
-*I may also seem blunt, strange and weird in some aspects but please keep in mind that I may have Audhd and ocd [though I am not medically diagnosed yet! I suffer alot of the symptoms]*
-
-<p><img width="530" height="30" alt="1000017708" src="https://github.com/user-attachments/assets/25055249-ae9b-4483-928a-b18603ddb230" />
-
-<div align="center">
-
-**Say, don't you regret how things ended with him?**
-
-<p><img width="710" height="432" alt="1000017713" src="https://github.com/user-attachments/assets/9274444c-dafb-418d-8818-7849c73983a4" />
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=7980C9&label=ryominaful)
 
 
+<img width="1276" height="116" alt="1000017864" src="https://github.com/user-attachments/assets/d07df147-f230-40fc-9c61-ac3627209694" />
 
-
-
+<br>
+<br>
+<br>
 
 <div align="center">
 
-**shotout to my friends and pals ^_^**
+random bullshit go
 
-*yukiyukyuk, Moe, Ren, Ira, Jamie, may, shio and my siblings too iguess. they my sacrifices*
+<br>
+<br>
 
-<div align="center">
+<img width="735" height="459" alt="1000017735" src="https://github.com/user-attachments/assets/9aecc256-6e36-43d8-b84d-eb1458eccc7c" />
 
-how do people even have the whole alphabet in their bio you guys can't know that many people iswear. y'all be lying or putting everyone you've ever talked to inthere. I look so friendless compared to those people so #hmu guys I'm not scary
+<img width="675" height="277" alt="1000017863" src="https://github.com/user-attachments/assets/2a08326a-eadf-424e-9feb-869ed6150af9" />
 
-<div align="center">
+<img width="586" height="524" alt="1000017866" src="https://github.com/user-attachments/assets/ebaca12d-9604-42cb-a2d0-7ca85c13c640" />
 
-maybe one day I'll make this actually look good
-
-<div align="center">
-
-listen to memories of you and write shuake fics guys
+<img width="736" height="658" alt="1000017867" src="https://github.com/user-attachments/assets/9596933c-e2c7-4905-8a82-5c03eb4a03fa" />
 
 
-![](https://komarev.com/ghpvc/?username=kissofdecay&color=752d2d&label=cheesecakes)
+
 
 
 
