@@ -70,4 +70,5 @@ random bullshit go
 
 
 
+<img width="1638" height="2048" alt="1000017876" src="https://github.com/user-attachments/assets/95537e12-4996-4bf7-aa93-e1d3f938d596" />
 
