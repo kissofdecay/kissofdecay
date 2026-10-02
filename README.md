@@ -72,3 +72,12 @@ random bullshit go
 
 <img width="1638" height="2048" alt="1000017876" src="https://github.com/user-attachments/assets/95537e12-4996-4bf7-aa93-e1d3f938d596" />
 
+<img width="736" height="686" alt="1000017877" src="https://github.com/user-attachments/assets/0dfa32f7-4c55-44c0-9191-e74aadd3a774" />
+
+
+<img width="736" height="659" alt="1000017878" src="https://github.com/user-attachments/assets/c65c6075-a708-4919-b43f-61578dca98dc" />
+
+
+<img width="736" height="736" alt="1000017879" src="https://github.com/user-attachments/assets/634ac50c-268c-4ef2-94c2-807ae071d732" />
+
+
