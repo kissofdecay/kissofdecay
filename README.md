@@ -1,9 +1,11 @@
-<img width="736" height="391" alt="1000017861" src="https://github.com/user-attachments/assets/5f7b9c1d-7a0d-4c21-8f9f-f554ce3e0a51" />
+<img width="736" height="391" alt="1000018063" src="https://github.com/user-attachments/assets/0f682667-4100-47bf-97d6-6edd745a2743" />
+
 
 
 <div align="center">
 
-***"But..I actually want us to be something more"***
+
+***"you're just some criminal trash living in an attic!"***
 
 <div align="center">
  
@@ -42,10 +44,12 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=kissofdecay&color=7980C9&label=ryominaful)
+![](https://komarev.com/ghpvc/?username=kissofdecay&color=8a3029&label=renlings)
 
 
-<img width="1276" height="116" alt="1000017864" src="https://github.com/user-attachments/assets/d07df147-f230-40fc-9c61-ac3627209694" />
+<img width="1280" height="125" alt="1000018070" src="https://github.com/user-attachments/assets/67dc599e-eee9-47ae-90ba-e0b493b4aee1" />
+
+
 
 <br>
 <br>
@@ -53,31 +57,5 @@
 
 <div align="center">
 
-random bullshit go
-
-<br>
-<br>
-
-<img width="735" height="459" alt="1000017735" src="https://github.com/user-attachments/assets/9aecc256-6e36-43d8-b84d-eb1458eccc7c" />
-
-<img width="675" height="277" alt="1000017863" src="https://github.com/user-attachments/assets/2a08326a-eadf-424e-9feb-869ed6150af9" />
-
-<img width="586" height="524" alt="1000017866" src="https://github.com/user-attachments/assets/ebaca12d-9604-42cb-a2d0-7ca85c13c640" />
-
-<img width="736" height="658" alt="1000017867" src="https://github.com/user-attachments/assets/9596933c-e2c7-4905-8a82-5c03eb4a03fa" />
-
-
-
-
-
-<img width="1638" height="2048" alt="1000017876" src="https://github.com/user-attachments/assets/95537e12-4996-4bf7-aa93-e1d3f938d596" />
-
-<img width="736" height="686" alt="1000017877" src="https://github.com/user-attachments/assets/0dfa32f7-4c55-44c0-9191-e74aadd3a774" />
-
-
-<img width="736" height="659" alt="1000017878" src="https://github.com/user-attachments/assets/c65c6075-a708-4919-b43f-61578dca98dc" />
-
-
-<img width="736" height="736" alt="1000017879" src="https://github.com/user-attachments/assets/634ac50c-268c-4ef2-94c2-807ae071d732" />
 
 
